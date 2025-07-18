@@ -1,2 +1,3 @@
 # IR
-tutorial ir by ambatoekam
+TUTORIAL BY #TETAW
+MIKIR NDIRI KIDZ 😜😜
